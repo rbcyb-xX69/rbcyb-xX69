@@ -5,7 +5,7 @@
  <p align="center">
   ебу матуху #(IFJ#(()F)(*F3rw   меня любят суки
 
-66 I'm kisssniii > +#+# Please don't use c+h and the rest of this nonsense. I'm not need to communication.
+66 I'm kisssniii > +#+# Please don't use c+h and the rest of this nonsense. [treat me like a FOOL] I don't need any communication ПИШИ
  <div align="center"> 
 ---44 sss my most wonderful yuuukiseee
   <br>    <img src="Без названия (2).jpg" alt="image" width="380" />
