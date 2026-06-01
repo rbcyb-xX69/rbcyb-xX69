@@ -11,7 +11,6 @@
   <br>    <img src="Без названия (2).jpg" alt="image" width="380" />
         <br>
    <br>
- <div align="center">  lfdfant давайте без с+х ок договорились
 <div align="center">
  $#*(&(*#   inf0 - https://t.me/inssn69 *&(*# 
     <div align="center"> 
