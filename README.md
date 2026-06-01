@@ -1,72 +1,17 @@
-<div align="center"> "<img src="https://visitor-badge.laobi.icu/badge?page_id=x36w5r.x36w5r&left_color=black&right_color=black&left_text=VISITORS;"/>
- 
-  ебу матуху #(IFJ#(()F)(*F3rw   меня любят суки
-
-66 I'm kisssniii > +#+#  i'm 75% either AFK or hanging out with friends
- <div align="center"> #*$&*( ну вагины меня привлекают
----44 sss my most wonderful yuuukiseee
- <div align="center">  lfdfant давайте без с+х ок договорились
-<div align="center">
- $#*(&(*#   inf0 - https://t.me/inssn69 *&(*# 
-    <div align="center"> 
-    <div align="center">
- <br>
-   <br>
-    <br>
-    <br>
-    <br>
-    <br>
-   <br>
-    <br>  
- <img align="middle" width="400" alt="image" src="ТГ_ aliceparacetamol.jpg" />
-    <div align="center">
-  @b3drosk1 und @CASSIOquo (vjb bynthytnjdcrbt ckg)
-<br> 
-   <br>
-    <br>
-    <br>  
- <br>
-   <br>
-    <br>
-    <br>
-    <br>
-    <br>
-   <br>
-    <br>  
-<img align="right" src=https://github.com/x36w5r/x36w5r/blob/1029f2eafa04b086199765786493dd99cd6e0b8f/%D0%91%D0%B5%D0%B7%20%D0%BD%D0%B0%D0%B7%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F%20(14).jpg />
-    <div align="center">  chi] вопи мне в пах еще минут 10, заработаешь хотя бы свои нищие 0.5 кирьгизьскай волюты   <br>   <br>   <br>   <br> z b vjb lhepmz --->
-      <br>
-   <br>
-    <br>
-    <br>
-    <br>
-    <br>
-   <br>
-    <br>  
- <br>
-   <br>
-    <br>
-    <br>
-    <br>
-    <br>
-   <br>
-    <br>      <br>      <br>      <br>      <br>      <br>   <img align="left" src=https://github.com/x36w5r/x36w5r/blob/4b4e6293e831178247a9c7abd7be37be88dbe726/%D0%91%D0%B5%D0%B7%20%D0%BD%D0%B0%D0%B7%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F%20(16).jpg />
-<div align="left">  
-   <br>
-    <br>
- <br>
-   <br>
-    <br>
-    <br>
-    <br>
-    <br>
-   <br>
-    <br>   <br>
-   <br>
-    <br>
-    <br>
-    <br>
-    <br>
-   <br>
-    <br>  
-   <div align="center">  <div align="center">  <div align="center">  <div align="center">  <div align="center">  <div align="center">  <div align="center">  <div align="center">   99% кодов спиздила у друзей :3  у @CASSIOquo и @b3drosk1
+<div align="center"> "<img src="https://visitor-badge.laobi.icu/badge?page_id=x36w5r.x36w5r&left_color=black&right_color=black&left_text=i+feel+myself;"/>
+    <br>   <br> 
+ <img align="center" width="400" alt="image" src="tumblr_59186a098f84633047ea26426dd4239f_620788cb_100.gif" />
+ </p>
+ <p align="center">
+<img src="https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=25&duration=1&pause=1000&color=ffffff&center=true&width=435&lines=%E2%80%98I'm+kisni+-+only+she\+her"/>   <p align="center"> <img src="https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=25&duration=1&pause=1000&color=ffffff&center=true&width=435&lines=%E2%80%98Please+don't+use+c-h+and+other+such+nonsense"/>
+ <br>   
+ ну ясно блять <br>  
+ <p align="center">  <br>   <br>   <br>   <br> танцуй или умри -->
+  <img align="center" width="350" alt="image" src="Без названия (1).jpg" />
+   <br>   <br>   <br>  
+   <br>  
+   <img src="photo_2026-06-01_17-48-20 (2).jpg" alt="image" width="320" /> 
+  <img src="photo_2026-06-01_17-48-19 (2).jpg" alt="image" width="400" />
+  <img src="Без названия (16).jpg" alt="image" width="380" />
+  <img src="Без названия (2).jpg" alt="image" width="380" />
+   <img src="photo_2026-06-01_17-48-19 (3).jpg" alt="image" width="300" />  
